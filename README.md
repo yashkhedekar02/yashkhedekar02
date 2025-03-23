@@ -37,7 +37,7 @@ I have completed my Master's in Data Science and Analytics from IT Vedant, and I
 💼 LinkedIn: [Your LinkedIn Profile]  
 📁 Portfolio: [Your Portfolio Link]  
 
-- 😄 Pronouns: He
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: ... I have a preety much good humor !
   
 
